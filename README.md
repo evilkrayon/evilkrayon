@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @evilkrayon
-- 👀 I’m interested in being an evil version of @krayon
+- 👀 I’m interested in being an evil version of [@krayon](https://www.github.com/krayon)
 - 🌱 I’m currently learning how to be evil
 - 💞️ I’m looking to collaborate on evil things
 - 📫 How to reach me - crossroads, some bones and a bag of ancient magic ... stuff
